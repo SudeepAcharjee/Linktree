@@ -1,1 +1,1 @@
-,lc;ddkj
+,lc;ddk
